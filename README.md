@@ -9,7 +9,7 @@
 
 - 🌱 I’m currently learning **Web developer** 
 
-- 📫 How to reach me **trunganh4002@gmail.com**
+- 📫 How to reach me **anh.hoang04k22@hcmut.edu.vn**
 
 
 
